@@ -1,1 +1,1 @@
-nampsi-pdf
+nampsi
