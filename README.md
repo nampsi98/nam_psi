@@ -1,1 +1,1 @@
-nampsi
+Tidak ada kata-kata
